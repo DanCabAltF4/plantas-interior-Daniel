@@ -10,3 +10,5 @@ cada un con sus propias necesidades de luz, agua...
 - aloe vera
 
 cuidadoscuidadoscuidadoscuidados
+consejoconsejoconsejoconsejo
+
