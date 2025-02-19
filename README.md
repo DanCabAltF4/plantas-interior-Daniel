@@ -8,3 +8,5 @@ cada un con sus propias necesidades de luz, agua...
 - mente
 - poto
 - aloe vera
+
+cuidadoscuidadoscuidadoscuidados
